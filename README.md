@@ -1,7 +1,7 @@
 ## Sejam bem vindos ao meu Show! 🎊
 
 
-Prazer meu nome é Felipe
+Prazer, meu nome é Felipe
 - Estou estudando Alura
 - Estou desenvolvendo minhas habilidades com JavaScript
 - Vou ultilizar esse espaço para organizar e compartilhar meu projeto
