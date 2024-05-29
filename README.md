@@ -12,3 +12,5 @@ Prazer, meu nome é Felipe
 
 ![](https://media1.tenor.com/m/x8BnLOgYuygAAAAC/furina-approves.gif)
 
+
+![](https://media1.tenor.com/m/AYE0sypnFJAAAAAC/genshin-impact-furina.gif)
