@@ -9,3 +9,5 @@ Prazer, meu nome é Felipe
 ## Você pode entrar em contato comigo pelo email abaixo ☎️
 
 00001105258117sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/x8BnLOgYuygAAAAC/furina-approves.gif)
